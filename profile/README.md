@@ -1,0 +1,7 @@
+# Where Was I
+
+Looks like you're here, just a little, heh... early 😉
+
+Well, it's like they say, the early bird gets the worm.
+
+Come back another time pal, you might just be onto something.
